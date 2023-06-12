@@ -1,0 +1,3 @@
+# Palestino
+
+Info sobre palestino 
